@@ -4,7 +4,7 @@ O intuito aqui no github é registrar minha evolução nos estudos de programaç
 Quem quiser pode acompanhar meu trabalho como artista no istagram:
 @ilustrageorge_ e @ggmbs26. 
 
-Podem me encontrar no linkedin por George Michael Barbosa Silveira.
+Podem me encontrar no linkedin (https://www.linkedin.com/in/gmbs88/).
 
 
 <!---
