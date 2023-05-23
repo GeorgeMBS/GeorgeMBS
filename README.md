@@ -3,7 +3,7 @@
 - Estou cursando Análise e desenvolvimento de sistemas 👨‍🎓
 - Estudando REACT JS 👨‍💻
 - Pretendo trabalhar com Front-end 💻
-- Me interesso muito por ilustração e design ❤️️
+- Me interesso muito por ilustração e design ✏️
 
 - Ele/dele 🧔
 
