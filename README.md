@@ -1,8 +1,8 @@
 ## Olá, me chamo GEORGE MICHAEL!
 
 - Estou cursando Análise e desenvolvimento de sistemas 👨‍🎓
-- Pretendo trabalhar com Front-end 💻
-- Me interesso muito também por ilustração,design e marketing ✏️
+- Faço estágio de desenvolvimento na empresa Vortigo 💻
+- Me interesso muito também por ilustração, design e marketing ✏️
 
 - Ele/dele 🧔
 
