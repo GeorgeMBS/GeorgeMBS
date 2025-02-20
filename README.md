@@ -1,7 +1,7 @@
 ## Olá, me chamo GEORGE MICHAEL!
 
 - Estou cursando Análise e desenvolvimento de sistemas 👨‍🎓
-- 
+  
 - Me interesso muito também por ilustração, design e marketing ✏️
 
 - Ele/dele 🧔
